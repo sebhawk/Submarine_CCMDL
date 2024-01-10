@@ -5,3 +5,4 @@ Submarine productionhttps://www.britannica.com/technology/naval-architecture/Gen
 Attack submarine gahttps://www.pittsfordschools.org/Page/20243
 Ballistic missile submarine gahttps://www.britannica.com/technology/naval-architecture/General-arrangement
 Operation submarine https://www.history.navy.mil/content/history/museums/nmusn/education/educational-resources/history-of-submarines/elements-of-submarine-operation.html
+Google doc: https://docs.google.com/document/d/1Mlevviq__D8H2g3IiZZAeH53_WI-FXfPSqnsZdGMdwM/edit?usp=sharing
