@@ -8,6 +8,6 @@ Ballistic missile submarine ga: https://www.britannica.com/technology/naval-ar
 Operation submarine: https://www.history.navy.mil/content/history/museums/nmusn/education/educational-resources/history-of-submarines/elements-of-submarine-operation.html<br/>
 Class ppt: https://1drv.ms/p/s!AjTpb5SNtJnshif8qA1TdqPKWo8N?e=ltWmgW<br/>
 Google doc: https://docs.google.com/document/d/1Mlevviq__D8H2g3IiZZAeH53_WI-FXfPSqnsZdGMdwM/edit?usp=sharing <br/>
-Report: https://docs.google.com/document/d/1iT5A6q0WhwUqt1aL-KHf_cv0xN5Sdkmz4YE1yiYRU4E/edit?usp=sharing
+Report:(https://iitkgpacin-my.sharepoint.com/:w:/g/personal/swagotosurjodutta_kgpian_iitkgp_ac_in/ER87dFkxrrlPnzsTFvKROBIBCYvbzw41HFAdrHjyt1iRPg?e=klhg8T)
 
 
